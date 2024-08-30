@@ -14,4 +14,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 
 ![](https://media1.tenor.com/m/hSSbqdZwix4AAAAd/gabriel-monteiro.gif)
-https://media1.tenor.com/m/hSSbqdZwix4AAAAd/gabriel-monteiro.gif'  
+https://media1.tenor.com/m/hSSbqdZwix4AAAAd/gabriel-monteiro.gif
