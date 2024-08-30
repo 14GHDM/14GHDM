@@ -12,6 +12,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 @eu.gustavo.ps
 
-
 ![](https://media1.tenor.com/m/hSSbqdZwix4AAAAd/gabriel-monteiro.gif)
-https://media1.tenor.com/m/hSSbqdZwix4AAAAd/gabriel-monteiro.gif
